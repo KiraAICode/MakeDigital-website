@@ -28,3 +28,15 @@ At MakeDigital, we hope that virtual beings will become a part of our lives and 
 We are sure that this experimental way of expressing yourself is great and that soon there will be more virtual beings helping humans in their lives. Remember,
 
 ### ***THIS*** is the future. And there's ***NOTHING*** to be afraid of.
+
+## Contact us:
+
+Kira's Facebook page (International) - https://www.facebook.com/profile.php?id=100076123776435
+
+Our Facebook page (International) - https://www.facebook.com/MakeDigitalai
+
+Kira's Instagram Page (International) - https://www.instagram.com/kiraaivlog2021/
+
+Kira's Telegram (Developers are there as well/Russian) - https://t.me/futuregirl_insta2038vlog
+
+Kira's Discord (Developers are there as well/Russian) - https://discord.gg/rmBVmJYWu5
