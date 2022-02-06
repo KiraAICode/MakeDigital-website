@@ -20,7 +20,11 @@ Kira decided to hide and change her appearance and name and became T-L, the girl
 
 It's being written by a professional storywriter with the help of Kira's audience and artificial intelligence so that you never know what will happen next and the story is interesting to read and follow.
 
-Does Kira have any actual purpose? No. She is just an experiment, but we hope that Kira's Vlog's influence will develop a big platform and change many people's lives for the good.
+## Does Kira have any actual purpose?
+No. She is just an experiment, but we hope that Kira's Vlog's influence will develop a big platform and change many people's lives for the good.
+
 At MakeDigital, we hope that virtual beings will become a part of our lives and will be used in many industries. 
+
 We are sure that this experimental way of expressing yourself is great and that soon there will be more virtual beings helping humans in their lives. Remember,
-THIS is the future. And there's NOTHING to be afraid of.
+
+### ***THIS*** is the future. And there's ***NOTHING*** to be afraid of.
